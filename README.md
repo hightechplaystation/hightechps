@@ -1,7 +1,7 @@
 #ht
-Hightech
+hi
 PS4 Jailbreak 9.00
-A HIGHTECH collection of the best PS4 9.00 Jailbreak links
+A hh collection of the best PS4 9.00 Jailbreak links
 
 # HIGHTECHPS PS4 Jailbreak
 
